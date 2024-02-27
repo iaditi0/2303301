@@ -1,5 +1,5 @@
 # ABOUT ME
-- Hey , my name is **Aditi Jindal**.
+-Hey , my name is **Aditi Jindal**.
 - I am currently **18** and an undergrad student at **IIT GOA**.
 - I am an *organised*, *efficient* and *hard working person* and willing to discover and accept new ideas.
  ![enter image description here](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS3NbdUzWGwoLRXbLKNdqftpztukbBlzPxxZwYSA-DCg7ijluN4qYKx9NfM72mBH3J7m0Q&usqp=CAU)
